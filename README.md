@@ -1,1 +1,1 @@
-Podemos encontrar las bases necesarias para aprender este nuevo leguaje 
+Podemos encontrar las bases necesarias para aprender este nuevo lenguaje 
